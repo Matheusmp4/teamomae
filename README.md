@@ -1,0 +1,2 @@
+# teamomae
+amo te
